@@ -1,1 +1,1 @@
-# SeniorMirzakhid.github.io
+# SenoirMirzakhid.github.io
