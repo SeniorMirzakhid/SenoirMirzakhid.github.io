@@ -1,1 +1,1 @@
-# Azizbek.github.io
+# SeniorMirzakhid.github.io
